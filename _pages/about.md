@@ -27,10 +27,12 @@ I like to do arts and crafts and read in my free time. Sometimes, I also chat wi
 
 -BLACKPINK
 Bias: Roseanne Park
+
 Bias wrecker: Jisoo
 
 -TWICE
 Bias: Dahyun
+
 Bias wrecker: Tzuyu
 
 Among the four seasons, I like winter most because that's when the time it snows and we can play in the snow outside.
