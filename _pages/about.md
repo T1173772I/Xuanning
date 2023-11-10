@@ -6,7 +6,8 @@ redirect_from:
   - /about/
   - /about.html
 
-![Lavender](https://www.google.com/imgres?imgurl=https%3A%2F%2Fa-z-animals.com%2Fmedia%2F2022%2F11%2Fshutterstock_606517310-1024x650.jpg&tbnid=3nvvh8m82YQgxM&vet=12ahUKEwjkkZ6FsrmCAxVCbmwGHTUZCOIQMygLegQIARB_..i&imgrefurl=https%3A%2F%2Fa-z-animals.com%2Fblog%2Flilac-vs-lavender%2F&docid=_QYVBJVB5WiZKM&w=1024&h=650&q=lavender&ved=2ahUKEwjkkZ6FsrmCAxVCbmwGHTUZCOIQMygLegQIARB_)
+
+![Lavender Flower Essence](https://www.stillpointaromatics.com/image/cache/data/Flower%20Essences/lavender%20flower%20essence%20cropped-554x554.jpg)
 
 Hello, I'm Xuanning
 ## About Xuanning
@@ -19,8 +20,7 @@ Hello, I'm Xuanning
 
 *Favourite colour:* Lavender
 
- *My Interests:*
-I like to do arts and crafts and read in my free time. Sometimes, I also chat with my friends online. 
+I like to do arts and crafts and read in my free time. Sometimes, I also chat with my friends online. I'm a cat person.
 
 
 
