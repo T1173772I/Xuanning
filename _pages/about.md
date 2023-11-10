@@ -23,8 +23,7 @@ Hello, I'm Xuanning.
 
 *Favourite colour:* Lavender
 
-I like to do arts and crafts and read in my free time. Sometimes, I also chat with my friends online. I'm a cat person.
-I am a K-Pop fan and these are my favourite groups: 
+I like to do arts and crafts and read in my free time. Sometimes, I also chat with my friends online. I'm a cat person. I am a K-Pop fan and these are my favourite groups: 
 -BLACKPINK
 Bias: Roseanne Park
 Bias wrecker: Jisoo
