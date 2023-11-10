@@ -26,11 +26,13 @@ Hello, I'm Xuanning.
 I like to do arts and crafts and read in my free time. Sometimes, I also chat with my friends online. I'm a cat person. I am a K-Pop fan and these are my favourite groups: 
 
 -BLACKPINK
+
 Bias: Roseanne Park
 
 Bias wrecker: Jisoo
 
 -TWICE
+
 Bias: Dahyun
 
 Bias wrecker: Tzuyu
