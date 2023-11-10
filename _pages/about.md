@@ -24,6 +24,14 @@ Hello, I'm Xuanning.
 *Favourite colour:* Lavender
 
 I like to do arts and crafts and read in my free time. Sometimes, I also chat with my friends online. I'm a cat person.
+I am a K-Pop fan and these are my favourite groups: 
+-BLACKPINK
+Bias: Roseanne Park
+Bias wrecker: Jisoo
+-TWICE
+Bias: Dahyun
+Bias wrecker: Tzuyu
+Among the four seasons, I like winter most because that's when the time it snows and we can play in the snow outside.
 
 
 
